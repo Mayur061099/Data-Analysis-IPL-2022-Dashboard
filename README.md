@@ -53,4 +53,4 @@ Teams should focus on batting consistency, bowling efficiency, and strategic tos
 For any questions, feedback, or collaborations, feel free to reach out!  
 
 📧 **Email**: mayupatel0610@gmail.com  
-🔗 **LinkedIn**: Mayur Patel  
+🔗 **LinkedIn**: https://www.linkedin.com/in/mayurpatel0610/  
